@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @mileswilliam1972
-- 👀 I’m interested in ... you
-- 🌱 I’m currently learning ...code
-- 💞️ I’m looking to collaborate on ...mmm
+- 👀 I’m interested in ... My Wife 
+- 🌱 I’m currently learning ... codes 
+- 💞️ I’m looking to collaborate on... Anything
 - 📫 How to reach me ... mileswilliam1972@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... Talk Dirty
 
 <!---
 mileswilliam1972/mileswilliam1972 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
